@@ -1,1 +1,1 @@
-- You can contact me @ ritvik916@gmail.com
+- You can contact me @ ritvikg@sc.edu
